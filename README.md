@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **arkay176@gmail.com**
 
-- ⚡ Fun fact **I am a bit happy-go-lucky guy.**
+- ⚡ Fun fact **I am a bit of a happy-go-lucky guy.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
